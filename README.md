@@ -32,7 +32,6 @@
 29. **داینامیک لینک افترافکتس** ⬇️ [https://my.uupload.ir/dl/v9EGooXR](https://my.uupload.ir/dl/v9EGooXR)
 30. **انواع پروژه های افترافکتس** ⬇️ [https://my.uupload.ir/dl/dxvOaN9E](https://my.uupload.ir/dl/dxvOaN9E)
 
----
 
 ---
 
